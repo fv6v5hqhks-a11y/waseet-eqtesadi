@@ -1,1 +1,0 @@
-# waseet-eqtesadi
